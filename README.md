@@ -1,0 +1,1 @@
+# izuriya.github.io
